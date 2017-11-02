@@ -3,7 +3,6 @@
 ### Geography
 
 I live in the city of Paris, in the region of Ile-de-France in France.
-And as **imagination** bodies forth,
 
 ### Reading
 
